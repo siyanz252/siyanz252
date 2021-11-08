@@ -1,4 +1,4 @@
-### Hi there 👋- 🌟 Please look for my other assignments in EX1. I put my assignments in EX1. Thank you！
+### Hi there 👋- 🌟 Please look for my other assignments in EX1. I put my assignments all in EX1. Thank you！
 
 <!--
 **siyanz252/siyanz252** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
